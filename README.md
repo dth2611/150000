@@ -22,4 +22,5 @@
 总结
 在这里，免费在线观看日本AV免费影片轻松简单：高清播放、极速加载、详细分类、每日更新、广告简洁、隐私安全，一站满足你对日本AV的所有需求，开启舒适观影体验！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dth2611/150000
+）</span>
